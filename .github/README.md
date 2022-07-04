@@ -8,7 +8,7 @@
   <img src="https://telegra.ph/file/a8847754355dba12deb82.jpg">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ꜱʜɪᴋʜᴀ ✘ ʀᴏʙᴏᴛ](https://t.me/FallenXRobot)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ꜱʜɪᴋʜᴀ ✘ ʀᴏʙᴏᴛ](https://t.me/SHIKHA_ROBOT)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
